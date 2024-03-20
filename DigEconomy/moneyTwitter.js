@@ -1,0 +1,12 @@
+// pain points my tool will solvez
+// how people will currently solve the problemz
+
+// everything that surrounds the CSSMathProduct
+
+// strategies to begin the automation product
+
+// project is first and you have a camera on you as you are building this project
+
+// moneytwitterskills / moneytwittermatch? - similar to propfirmmatch - digital economy ratings? - free resources as well as paid
+
+// technical first when addressing topic ideas for strats and growth. 
